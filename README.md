@@ -1,1 +1,1 @@
-![readme](https://cloud.githubusercontent.com/assets/65057/2710212/986fec8e-c4be-11e3-9af2-bf757262b4ec.png)
+![victory](https://cloud.githubusercontent.com/assets/65057/5564326/6c0248a4-8eb7-11e4-8a30-f11c0f25252d.png)
